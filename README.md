@@ -2,6 +2,6 @@
 - 👀 I’m interested in Cloud computing, infrastructure automation, and building efficient and scalable systems & using AI/ML Technologies to be ready for future;)
 - 🌱 I’m currently learning New technologies DEVOPS and Serverless architectures. I'm also expanding my knowledge of DevOps principles & Gen AI Tools.
 - 💞️ I’m looking to collaborate on Open-source projects related to infrastructure automation or cloud development. I'm also open to discussions and knowledge sharing with anyone interested in these areas.
-- 📫 How to reach me ou can send me a direct message on Instagram (@sasmitamallia31) haha ;) or connect with me on LinkedIn.
+- 📫 How to reach me ou can send me a direct message on Instagram (@ekadashisoul) haha ;) or connect with me on LinkedIn.
 - 😄 Pronouns: "She/Her"
 - ⚡ Fun fact: I can talk Non-Stop !
